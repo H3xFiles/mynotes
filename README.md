@@ -1,1 +1,1 @@
-# mynotes
+# www.mindwarelab.org
